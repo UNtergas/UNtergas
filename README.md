@@ -1,6 +1,7 @@
 ## Yo 👋
 ![image](https://github.com/user-attachments/assets/23fe0889-e09f-4a45-a24d-6db8cfe61772)
 
+Me building -> me feel motivated
 
 📫 How to reach me: nguyenanhtuan20024@gmail.com
 
